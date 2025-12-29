@@ -1,0 +1,6 @@
+
+![[4655b40db343ce3781182f08e13ce805.jpg|512x262]]
+
+**Vault of Winter’s Womb** adalah **makam tersegel** yang tersembunyi jauh di bawah lapisan es abadi **Frosthaven**—sebuah tempat yang hanya dikenal dalam legenda dan doa putus asa. Konon, di dalamnya tersimpan **sumber atau penawar dari kutukan musim dingin abadi** yang telah membekukan dunia di sekitarnya. Tak ada peta yang pasti, tak ada jalan yang tetap; hanya badai dan reruntuhan kuno yang mengarah pada pintu batu raksasa yang terukir dengan **simbol-simbol ritual beku dan doa kuno kepada dewa musim**.
+
+Selama berabad-abad, banyak penjelajah, kultis, dan bahkan raja telah mencoba **menembus kedalamannya**—tak satu pun kembali. Sebagian mengatakan pintunya dijaga oleh **roh penjaga salju**, lainnya percaya **waktu itu sendiri membeku di dalamnya**. Di antara bangsa Dwarf dan sisa penghuni Frosthaven, Vault of Winter’s Womb disebut bukan hanya tempat rahasia, tapi **rahim dari kutukan itu sendiri**—asal mula dingin yang tidak pernah berakhir.

@@ -1,0 +1,6 @@
+
+![[9fb336a0ec7cff4ab86de0a818608e68.jpg|250x375]]
+
+**Zaulakhar** adalah **reruntuhan vulkanik kuno** yang terletak di tengah hamparan hitam **Ashenveil**, tempat di mana tanah berasap dan udara berbau belerang. Batu-batu hangus menjulang bagai taring naga purba, sementara aliran lava beku membentuk lorong-lorong berliku menuju ruang-ruang ritual yang telah lama ditinggalkan. Dulu, Zaulakhar diyakini sebagai pusat kekuatan elemental api—**tempat para penguasa magma memahat relik yang mampu menantang dunia itu sendiri.**
+
+Kini, reruntuhan itu **dijaga oleh para genasi muda**, keturunan dari roh api yang bertekad melindungi warisan leluhur mereka dari tangan tamak dunia luar. Namun di balik penjagaan itu, **bayang-bayang perampok dan pemburu harta** terus mengintai dari bukit abu, tertarik oleh desas-desus tentang **relik paling berharga di seluruh Ashenveil**. Entah berkah atau kutukan, siapa pun yang berani menembus panas dan bahaya Zaulakhar mungkin akan menemukan lebih dari sekadar emas—mereka akan menemukan rahasia api yang tak pernah padam.

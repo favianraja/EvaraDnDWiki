@@ -1,0 +1,6 @@
+
+![[2000d5991f953c515d505f1f8b71fc71.jpg|271x354]]
+
+**Azkelaad** adalah benteng orc yang kokoh dan terpahat dalam-dalam di antara perbukitan bergerigi berwarna kemerahan, bertabur kristal dan batu bercahaya. Kota ini dibangun menempel pada tebing layaknya **rangkaian benteng bertumpuk**, perpaduan antara arsitektur kasar dan jaringan gua alami — tiap tingkat dihubungkan oleh **ramp batu lebar** atau **lift rantai** yang dioperasikan oleh para ogre pemarah. Di sini, **kerja keras dan kehormatan** adalah dasar dari kelangsungan hidup. Suara palu menempa logam dan derak gerobak batu menggema di seluruh ngarai, sementara **urat bijih sihir dan mineral aneh** menjalar lebih dalam daripada yang pernah dijelajahi siapa pun.
+
+Meski berasal dari budaya orc, **Azkelaad kini menjadi tempat lebur bagi para pengrajin buangan, penambang pelarian, dan klan bayaran**, bersatu oleh satu hal: bertahan hidup melalui **kekuatan dan kerja**. Kota ini bukan tempat yang ramah, namun **selalu jujur**. Perselisihan diselesaikan lewat tradisi—**adu senjata, taruhan, atau pembuktian perbuatan**. Sihir dihormati hanya bila berguna. Dan di bawah hiruk-pikuk industri yang tak pernah tidur, beredar **bisikan tentang sesuatu yang kuno**, bersembunyi jauh di kedalaman yang bahkan para penambang tak berani gali.

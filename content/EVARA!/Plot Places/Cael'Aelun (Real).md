@@ -1,0 +1,6 @@
+
+![[964b7bd6ced4651d01343b2dfca4d565.jpg|572x262]]
+
+**Cael’Aelun Sejati**, tersembunyi jauh di dalam kabut abadi Auran, bukanlah tempat yang ditemukan — melainkan yang **memanggil**. Tidak tertulis di peta mana pun, tidak disebut dalam doa resmi, dan tidak dikenali oleh para peziarah yang tersesat ke bayangannya di Ashenveil. Pulau ini berdiam di antara realitas, **di mana laut berhenti bernafas dan langit membeku dalam senja abadi**. Di sinilah batas antara hidup dan mati benar-benar menipis, dan arwah berjalan di antara bisikan ombak tanpa suara.
+
+Tak ada kuil, tak ada tanda suci — hanya **lubang menuju gua** yang berdenyut lembut seperti nadi dunia itu sendiri. Mereka yang tiba di sini tanpa diundang jarang kembali, dan mereka yang dipanggil pulang biasanya melupakan apa yang mereka lihat. Beberapa legenda kuno menyebut Cael’Aelun bukan sekadar tempat, melainkan **jiwa yang tertidur**, sebuah entitas purba yang mengingat semua yang telah hilang… dan perlahan, menunggu untuk diingat kembali.

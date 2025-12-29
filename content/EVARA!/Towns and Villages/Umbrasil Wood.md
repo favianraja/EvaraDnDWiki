@@ -1,0 +1,6 @@
+
+![[fb79866de3d302d92377fb8093e7c811.jpg|268x403]]
+
+Tersembunyi di bawah kanopi yang begitu lebat hingga sinar matahari nyaris tak menyentuh tanah hutan, **Umbrasil Wood** menjadi rumah bagi masyarakat elf kegelapan — bangsa kuno yang penuh rahasia, berpegang pada ingatan panjang, diplomasi senyap, dan naluri bertahan hidup yang tak tergoyahkan. Meskipun hutannya tertutup rapat bagi sebagian besar orang luar, para dark elf Umbrasil jauh dari kata terisolasi. Melalui utusan bayangan, korespondensi magis, dan perjanjian berabad-abad, mereka memainkan peran dalam politik luas Evara — memengaruhi peristiwa dari balik tirai pepohonan.
+
+Hutan ini memiliki keheningan yang tidak wajar. Jalur-jalur berubah ketika langkah asing menapakinya. Pos penjaga berlampu hitam memantau setiap gerakan di bawah cabang-cabang pohon. Namun di dalam perbatasannya, kota-kota drow berdiri teratur, halus, dan kuno dalam desain — dipenuhi dengan batuan bioluminesen, pemukiman menyerupai menara pohon, serta aula ritual yang sunyi. **Umbrasil** tidak mencari penaklukan — tetapi ia tidak pernah lupa siapa pun yang berani mendekati perbatasannya.

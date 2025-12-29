@@ -1,0 +1,6 @@
+
+![[9e37fb5ea7ff50588ce5fc2bfcae4213.jpg|474x238]]
+
+Tersembunyi di lembah tinggi di tepi **Talaris**, **Valemount Refuge** adalah sebuah permukiman yang lahir bukan dari penaklukan, melainkan dari perjuangan untuk bertahan hidup. Para penghuninya — para **beastkin**, **therianthrope**, dan bangsa setengah-hewan — dulunya tinggal di **Crimson Forest** yang subur, sebelum terpaksa melarikan diri setelah hutan tersebut direbut oleh klan kriminal terbesar di Evara, yang menjadikannya benteng kekuasaan mereka. Kini, di balik puncak-puncak berbahaya yang memisahkan Talaris dari **Ashenveil**, bangsa yang terusir itu perlahan membangun kehidupan baru.
+
+Meskipun kecil dan terisolasi, komunitas ini berkembang berkat kemandirian, kenangan bersama, dan keharmonisan dengan alam. Jalan-jalan diukir dari batu lunak, rumah-rumah tertanam di lereng gunung, dan menara pengawas berfungsi ganda sebagai kuil untuk roh-roh hutan lama. Penduduk **Valemount** tidak mencari balas dendam — namun mereka tak pernah lupa dari mana mereka berasal, dan apa yang telah direnggut dari mereka.

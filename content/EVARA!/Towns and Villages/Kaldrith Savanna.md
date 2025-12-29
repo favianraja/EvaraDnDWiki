@@ -1,0 +1,6 @@
+
+![[0a505621fe3f387b6be00d3b46e89db2.jpg|460x270]]
+
+Hamparan rumput tanpa akhir bergoyang diterpa angin di **Kaldrith Savannah**, tempat di mana angin, matahari, dan tanah seolah bernafas dalam keselarasan. Tanah luas terbuka ini menjadi rumah bagi bangsa elemental yang damai namun bangga — terutama para **genasi**, yang telah hidup di sini selama generasi dalam desa-desa terpencar. Tidak seperti kota-kota terstruktur di utara, Kaldrith tidak memiliki ibu kota tunggal. Sebaliknya, wilayah ini berkembang sebagai persatuan longgar dari komunitas-komunitas independen yang menjunjung tinggi alam, leluhur, dan keseimbangan unsur.
+
+Di pusat keharmonisan ini berdiri **Mahrad-Thul**, seorang **dao** kuno dan misterius yang bertindak sebagai pemandu spiritual sekaligus penengah politik. Dari tempat suci bawah tanah di bawah **Stonewell Crater**, ia memimpin pertemuan musiman, menyelesaikan perselisihan, dan berkomunikasi langsung dengan roh bumi. **Kaldrith** tidak mengejar kekuasaan — ia mengejar keseimbangan. Para pendatang disambut dengan kehati-hatian, namun siapa pun yang mengancam irama alami sabana ini akan segera mendapati tanah di bawah kakinya bergerak menentang mereka.

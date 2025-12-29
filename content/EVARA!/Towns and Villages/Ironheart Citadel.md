@@ -1,0 +1,7 @@
+
+![[345ca1acba17e7421af6237f65269b71.jpg|422x227]]
+
+Di jantung tundra terkutuk [[Frosthaven]], di tengah badai salju abadi yang telah menelan kerajaan-kerajaan kuno, berdiri **Ironheart Citadel** — **mercusuar terakhir kehangatan** di tanah beku. Dibalut oleh **penghalang bercahaya dari sihir kuno para dwarf**, benteng ini adalah **satu-satunya bangsa yang masih hidup** di wilayah Frosthaven — **tempaannya masih menyala, panjinya masih berkibar.** Terpahat di dasar gunung berongga, Ironheart bukan sekadar kota; ia adalah **pernyataan keras kepala bangsa dwarf terhadap dunia yang berusaha membekukan mereka dari sejarah.**
+
+Benteng ini diperintah oleh **Raja Dwarf yang bangga dan sarat luka pertempuran**, keturunannya menelusuri garis darah jauh sebelum kutukan salju melanda. Di dalam penghalang, hidup memang keras, namun **teratur dan bertahan.** Rakyatnya tangguh, **rekayasa adalah kesucian**, dan tradisi dipeluk erat karena dari sanalah kelangsungan hidup mereka bersumber.  
+Meski **orang luar jarang diizinkan masuk**, Ironheart dikenal kerap mengirim **tim ekspedisi** untuk mencari pengetahuan yang hilang atau **artefak kuno** yang terkubur di bawah lapisan es yang tak berkesudahan.

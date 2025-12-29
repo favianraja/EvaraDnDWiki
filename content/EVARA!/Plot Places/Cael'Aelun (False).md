@@ -1,0 +1,6 @@
+
+![[0d40441e965f33b0abea257b594d3ae0.jpg|284x308]]
+
+**Cael’Aelun** adalah **pulau suci yang dipercaya sebagai perbatasan antara hidup dan mati**—tempat di mana jiwa-jiwa dapat berbisik pada yang masih bernapas, dan doa dapat menembus dua dunia. Dikelilingi kabut abadi dan cahaya bulan yang tak pernah pudar, banyak yang menganggapnya sebagai salah satu lokasi paling sakral di seluruh Ashenveil. Para peziarah datang dengan harapan berbicara pada orang yang telah tiada, dan banyak yang bersumpah telah mendengar suara yang mereka kenal memanggil dari antara angin.
+
+Namun tidak ada peta yang pasti, tidak ada catatan perjalanan yang sama. Mereka yang berhasil “menemukannya” selalu menggambarkan tempat yang sedikit berbeda—seolah pulau itu sendiri berubah untuk setiap orang yang datang. **Tak seorang pun menyadari bahwa apa yang mereka temui bukanlah Cael’Aelun yang sejati**, melainkan **bayangannya**—cermin halus dari sesuatu yang lebih tua, lebih sunyi, dan lebih jauh dari jangkauan dunia manusia.

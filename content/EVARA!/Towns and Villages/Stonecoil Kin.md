@@ -1,0 +1,6 @@
+
+![[6c713504151f33f1dbf7e1d0d66f2ba7.jpg|390x258]]
+
+**Stonecoil Kin** adalah desa kobold unik yang terbentang di padang rumput kuning-oranye yang disinari matahari di [[Cast Away Land]]. Berbeda dengan kerabat mereka yang hidup di gua dan kegelapan, para kobold Stonecoil justru berkembang di bawah langit terbuka — membangun liang berkubah dan pondok bertabur mesin dari reruntuhan kuno serta potongan artefak sihir. Suara **roda gigi berputar** dan **uap mendesis** bergema di seluruh desa, digerakkan oleh kincir angin, kristal surya, dan alat-alat yang terlalu tidak stabil untuk disebut aman. Meskipun letaknya terbuka, desa ini dijaga dengan **perangkap tersembunyi**, **glyph pertahanan**, dan **menara pengintai berputar** yang disamarkan seperti orang-orangan sawah.
+
+Pemukiman ini merupakan salah satu dari sedikit tempat di [[Cast Away Land]] yang masih **mengejar pengetahuan dan kestabilan**. Walau tetap berhati-hati terhadap orang luar, Stonecoil Kin menyambut para pedagang dan petualang—terutama mereka yang membawa **komponen langka** atau **rancangan baru**. Banyak yang percaya bahwa kaum Kin dulunya adalah **insinyur dari kerajaan kuno yang telah dilupakan**, dan obsesi mereka terhadap penemuan bukan sekadar karena rasa ingin tahu… melainkan karena **ingatan yang tertinggal dari masa lalu.**
